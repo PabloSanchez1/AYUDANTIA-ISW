@@ -1,2 +1,2 @@
 > [!NOTE]
-> Tarea 1 ayudantia
+> Trabajos de ayudantía
